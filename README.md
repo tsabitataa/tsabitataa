@@ -1,6 +1,6 @@
 # Introduction
 
-Hello everyone! 👋 I'm [Your Name], a [Year/Grade] student. Let me share a bit about myself:
+Hello everyone! 👋 I'm Tsabita, a 10 student. Let me share a bit about myself:
 
 ## Personal Details
 - **Name:** Tsabita Lu'lu' Maliha
